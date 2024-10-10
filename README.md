@@ -6,5 +6,8 @@
 
 💞️ I’m looking for a Data Analyst job
 
-📫 How to reach me prachirohitshinde21@gmail.com
+📫 How to reach me :
 
+prachirohitshinde21@gmail.com
+
+www.linkedin.com/in/prachi-shinde-183301268
